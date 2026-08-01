@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **Shashank253565@gmail.com**
 
-- ⚡ Fun fact **orture the data long enough, it will confess.**
+- ⚡ Fun fact **torture the data long enough, it will confess.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
